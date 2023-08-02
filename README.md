@@ -2,7 +2,7 @@
 - 👀 I’m interested in football
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on google
-- 📫 How to reach me ...sad
+- 📫 How to reach me ...sadsfd
 
 <!---xzcxzczx
 watsonscorb/watsonscorb is a ✨ special ✨ repository becausenm its `README.md` (this file) appears on your GitHub profile.
