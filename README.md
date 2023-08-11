@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @watsonscorb
 - 👀 I’m interested in footballdasd
 - 🌱 I’m curxzcrently learningfgddf python
-- 💞️ I’m looking to collaborate on googasdcxzle
+- 💞️ I’m lookinsdg to collasdaborate on googasdcxzle
 - 📫 How to reach me ...sadsfdc
 cxzcbdfdfggfd
 <!---xzcxzczxfdbgfd
