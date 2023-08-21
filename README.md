@@ -1,6 +1,5 @@
-ва- 👋 Hi, I’m @watsonscorb
-- 👀 I’m interested in footballdasd
-- 🌱 I’m curxzcrently learningfgddf python
+bcxsted in footballdasd
+- 🌱 I’m curxzcasdrently learningfgddf python
 - 💞️ I’m lookinsdg to colаівіlasdaborate on googasdcxzleчяс
 - 📫 How to reacячсчясh me .fdsf..sadsfdівав
 cxzcbdfdfggfdfsczhte
