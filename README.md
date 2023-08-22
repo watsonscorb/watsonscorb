@@ -1,6 +1,6 @@
 bcxsted in footballdasd
-- 🌱 I’m curxzcasdrently learningfgddf python
-- 💞️ I’m lookinsdg to colаівіlasdaborate on googasdcxzleчяс
+- 🌱 I’m curxzcasdrently learvbnmningfgddf python
+- 💞️ I’m lookinsdg to colаівіlasdaborate on googasdcxzleч hgjnяс
 - 📫 How to reacячсчясh me .fdsf..sadsfdівав
 cxzcbdfdfggfdfsczhte
 <!---xzcxzczxfdbgfdcv
