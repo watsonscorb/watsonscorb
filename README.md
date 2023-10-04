@@ -1,5 +1,5 @@
 bcxsted in footballdasd
-- 🌱 I’m curxzcasdrently learvbnmівафівачіфningfgddf python
+- 🌱 I’m curxzcasdrently learvbnmівафівачіфningfgddf pythonb
 - 💞️ I’m lookinsdg to colаівіlasdaborate on googasdcxzleч hgjnясfdмчсasd
 - 📫 How to reacячсчdsdsfasdясh me .fsdfdsf..sadsfdівавcxvxcvxcv
 cxzcbdfdfggfdfsczhtefsdasdsavfvczxczxc
