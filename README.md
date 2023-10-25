@@ -1,4 +1,4 @@
-bcxsted in footballdasd
+bcxsted in footnnbballdasd
 - 🌱 I’m curxzcasdrently learvbnmівафівачіфningfgddf pythonbasdcj,hkl
 - 💞️ I’m lookinsdg to colаівіcvblasdaborate onhgj googasdcxzleч hgjnясfdмчсasd
 - 📫 How to reacячсчdsdsfasdясh me .fsdfdsf..sadsfdівавcxvxcvxcv
