@@ -1,4 +1,4 @@
-bcxsted in footnnbballdasdasdas
+bcxsted in footnnbballdasdasdsadscxvcxvas
 - 🌱 I’m curxzcasdrently learvbnmівафівачіфningdsfgddf pythonbasdcj,hkluvlkg
 - 💞️ I’m lookinsdg to colаівіcvblasdaborate onhgj googasdcxzleч hgjnясfdмчсdcasd
 - 📫 How to reacячсчdsdsfasdясh me фівяч.fsdfdsf..sadsfdівавcxvxcvxcvxzc
