@@ -1,6 +1,6 @@
 bcxsted in footnnbballdasdasdsadscxvcxvas
 - 🌱 I’m curxzcasdrently learvbjhknmівафівачіфningdsfgddxcxcxf pythonbassdddcj,hkluvlkg
-- 💞️ I’m lookinsdg to colаівіcvblasdaborahgjvte onhgj googasdcxzleч hgjnясfdмчсdsadsлпроcasdygkhcvbhvgjghjk
+- 💞️ I’m lookinsdg to colаівіcvblasdsdsdaborahgjvte onhgj googasdcxzleч hgjnясfdмчсdsadsлпроcasdygkhcvbhvgjghjk
 - 📫 How to reacячсчdsdsfasdясh me asdsaфівяч.fsdfdsf..sadsfdівавcxvxcvxcvxzc
 cxzcbdfdfggfdfsczhtefsdasdsavfvczxczxcіррповаів
 <!---xzcxzczxfdbgfdcvxv
