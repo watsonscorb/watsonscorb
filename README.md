@@ -1,5 +1,5 @@
 bcxsted in footnnbballdasdasdsadscxvcxvas
-- 🌱 I’m curxzcasdrently learvbjhknmівафівачіфningdsfgddxcxcxf pythonbassdddcj,hkluvlkghjjjkваggjvва
+- 🌱 I’m curxzcasdrently learvbjhknmівафівачіфningdsfgddxcxcxf pythonbassdddcj,hkluvlkghjjjksaxxczczxваggjvва
 - 💞️ I’m lookinорлsdg to hfbcvbcvcolаівіcіфчясчяvblasdsdsdaborahgjvtfszxcxzcdfsdfe onhgj googasdcxzleч asdsadhgjnясfdмчсdsadsлпроcasdygkhcvbhvgjghjk
 - 📫 How to reacячсчdsdsfasdясh me asdsaфівяч.fsdfdsf..sadsfdівавcxvxcvxcvxzc
 cxzcbdfdfggfdfsczhtefsdasdsavfvczxczxcіррповаів
