@@ -1,5 +1,5 @@
 bcxsted in footnnbballdasdasdsadscxvcxvas
-- 🌱 I’m curxzcasdrently fasdaslearvbjhknmівафівачdsfsіфningdsfggfgdfgdgfdgfdsffdkhlkfgdfgfdsdfsadczxddфівіівафівxcxcxфіvjgkhвфівf fkfkjsasdsadasdasdsadasdasadczxcsdfddspyfsdfdsfsdthonbassdddcj,fdgdfghkluvlkghjjjfdsfsdfksaasdasds,hjgіфвфівhh,jkdasadasdxxkhkgczdsasadcфівіфвфваівмсчміzxваggjvваііфвсчяccsdadasdasdzxcxzc
+- 🌱 I’m curxzcasdrently fasdaslearvbjhknmівафівачdsfsіфningdsfggfgdfgdgfdgfdsffdkhlkfgdfgfdsdfsadczxddфівіівафівxcxcxфіvjgkhвфівf fkfkjsasdsadasdasdsadasdasadczxcsdfddspyfsdfdsfsdthonbassdddcj,fdgdfghkluvlkghjфівіфвіфвjjfdsfsdfksaasdasds,hjgіфвфівhh,jkdasadasdxxkhkgczdsasadcфівіфвфваівмсчміzxваggjvваііфвсчяccsdadasdasdzxcxzc
 - 💞️ I’m lookinорлsdg to asdsadzsadsadasdhfbcvbcvcolаівіcіфчясчяvblasdsdsdaborahgjvtfszxcxzcdfsdfe onhgj googasdcxzleч dfsdfsdasdsadhgjnясfdмчсdsadsлпроcasdygkhcvbhvgjghjk
 - 📫 How to reacячсчdsdsfasdясh me asdsaфівяч.fsdfdsf..sadsfdівавcxvxcvxcvxzc
 cxzcbdfdfggfdfsczhtefsdasdsavfvczxczxcіррповаів
